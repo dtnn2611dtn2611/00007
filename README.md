@@ -19,4 +19,4 @@
 本站采用全站HTTPS加密，支持PC、手机、平板多端无广告流畅播放，搭配全球CDN加速，确保高速不卡顿。高清预览图和详细信息助您轻松选择最爱影片。我们坚持每日更新，保障内容新鲜，持续为您带来最热门最新日本AV免费资源。
 
 无论您是追求高清无码的激情演出，还是喜欢剧情丰富的精品作品，这里都是您的首选平台。立即收藏本站，尽享免费高清日本AV免费影片，体验极致观影服务！
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] (https://github.com/dtnn2611dtn2611/00007 ）</span>
